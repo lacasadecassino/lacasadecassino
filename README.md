@@ -21,7 +21,8 @@
 
  
  🌐 Conecte-se conosco:
-- Site: <https://www.comunidadelacasadecassino.com> 
+- Site: <https://www.comunidadelacasadecassino.com>
+- Twitch: <https://www.twitch.tv/comunidadelacasadecassino>
 - LinkedIn: <https://www.linkedin.com/in/comunidade-lacasadecassino-13296a294/>
 - Instagram: <https://www.instagram.com/comunidadelacasadecassino/>  
 
