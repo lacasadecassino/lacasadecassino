@@ -3,16 +3,16 @@
 - *_Somos apaixonados por iGaming e especialistas em tecnologia. Nossa equipe de programadores talentosos já trabalhou com os maiores nomes da indústria do iGaming, ajudando-os a alcançar o sucesso_*
 
   💼 Nossa Expertise: 
-  -         Manipulação Avançada de Dados
-             Otimização de Desempenho em Tempo Real 
-              Desenvolvimento de Estratégias Inovadoras
+  -     Manipulação Avançada de Dados
+         Otimização de Desempenho em Tempo Real 
+          Desenvolvimento de Estratégias Inovadoras
 
 - Estamos comprometidos em compartilhar nosso conhecimento e experiência para ajudar você a ter sucesso no mundo competitivo do iGaming.
 
   🏆 Nosso Histórico:
-  -          Reconhecimento da Indústria
-              Transformação de Paixão em Lucro
-               Parcerias com Grandes Players do iGaming
+  -     Reconhecimento da Indústria
+         Transformação de Paixão em Lucro
+          Parcerias com Grandes Players do iGaming
 
 - Estamos comprometidos em compartilhar nosso conhecimento e experiência para ajudar você a ter sucesso no mundo competitivo do iGaming.
 
