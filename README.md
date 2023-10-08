@@ -21,13 +21,11 @@
 
  
  🌐 Conecte-se conosco:
+- Site: <https://www.comunidadelacasadecassino.com> 
+- LinkedIn: <https://www.linkedin.com/in/comunidade-lacasadecassino-13296a294/>
+- Instagram: <https://www.instagram.com/comunidadelacasadecassino/>  
 
--            Site: Inserir Link do Site  
-              LinkedIn: <https://www.linkedin.com/in/comunidade-lacasadecassino-13296a294/>
-               Twitter: Inserir Link do Twitter
-
-
-
+  🚀 *Vamos quebrar barreiras, superar desafios e conquistar o iGaming!* 💰🔥
 
 
--->
+
